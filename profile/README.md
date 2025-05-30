@@ -4,6 +4,8 @@
 
 *Football Legends* is the ultimate soccer game that combines **epic** gameplay, **legendary** players, and fast-paced action to create an experience like no other. Whether you're a casual gamer or a die-hard football fan, this **hyper-casual** game offers everything you need for an unforgettable time on the virtual field. From **speed** to strategy, *Football Legends* will challenge you to prove you're the best.
 
+## <a href="https://1kb.link/ikO8d9">👉 Play Football Legends Unblocked NOW 👈</a>
+
 ---
 
 ### **Game Features**
